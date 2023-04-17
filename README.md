@@ -26,6 +26,7 @@ Phrases for beginners:
 - I apologize for any inconvenience caused...
 - Please let me know if you need any further information...
 - Thank you for your prompt attention to this matter.
+- 
 
 Closing: [Summarize main points and express appreciation or gratitude]
 
