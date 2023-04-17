@@ -1,6 +1,6 @@
 # Email Writing Cheat Sheet
 
-### Email writing is an essential skill in professional communication. Whether you're writing a formal email to a colleague or an informal email to a friend, here are some helpful tips and phrases to guide you:
+Email writing is an essential skill in professional communication. Whether you're writing a formal email to a colleague or an informal email to a friend, here are some helpful tips and phrases to guide you:
 
 
 <h2>
